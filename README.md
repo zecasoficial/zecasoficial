@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @zecasoficial
+- 👋 Hi, I’m José Henrique (but you can call me Zecas) @zecasoficial
 - 👀 I’m interested in programming, audiovisual and AI.
 - 🌱 I’m currently learning programming and English.
 - 💞️ I’m looking to collaborate on I don't know for sure.
